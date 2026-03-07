@@ -1,11 +1,10 @@
 ---
-title: "16피트 REEKON T1M, 5가지 스마트 기능으로 당신의 작업이 10배 빨라진다!"
-description: "REEKON T1M, 당신의 작업 효율을 혁신할 스마트 디지털 줄자"
+title: '16피트 REEKON T1M, 5가지 스마트 기능으로 당신의 작업이 10배 빨라진다!'
+description: 'REEKON T1M, 당신의 작업 효율을 혁신할 스마트 디지털 줄자'
 date: 2026-02-25T06:28:00+09:00
-author: Moon
+author: 'Moon'
 categories: [shopping]
 tags: ["Top5", "shopping", "reekon", "REEKON T1M", "디지털 줄자", "스마트 측정", "블루투스 줄자", "작업 효율", "정밀 측정"]
----
 
 > 💦 이 포스팅은 파트너스 활동을 통해 일정액의 수수료를 제공받습니다. 💦
 

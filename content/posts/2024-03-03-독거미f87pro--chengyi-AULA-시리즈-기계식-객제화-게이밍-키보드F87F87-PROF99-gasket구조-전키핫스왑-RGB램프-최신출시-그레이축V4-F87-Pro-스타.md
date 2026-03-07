@@ -1,11 +1,10 @@
 ---
-title: "독거미f87pro  [30~60대]  [chengyi] AULA 시리즈 기계식 객제화 게이밍 키보드F87/F87 PRO/F99/ gasket구조 전키핫스왑 RG 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '독거미f87pro  [30~60대]  [chengyi] AULA 시리즈 기계식 객제화 게이밍 키보드F87/F87 PRO/F99/ gasket구조 전키핫스왑 RG 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-03
-slug: "독거미f87pro--chengyi-AULA-시리즈-기계식-객제화-게이밍-키보드F87F87-PROF99-gasket구조-전키핫스왑-RGB램프-최신출시-그레이축V4-F87-Pro-스타"
-author: Moon
+slug: '독거미f87pro--chengyi-AULA-시리즈-기계식-객제화-게이밍-키보드F87F87-PROF99-gasket구조-전키핫스왑-RGB램프-최신출시-그레이축V4-F87-Pro-스타'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 **독거미 f87 프로: 빠른 성능과 뛰어난 카메라를 가진 플래그십 스마트폰**
 

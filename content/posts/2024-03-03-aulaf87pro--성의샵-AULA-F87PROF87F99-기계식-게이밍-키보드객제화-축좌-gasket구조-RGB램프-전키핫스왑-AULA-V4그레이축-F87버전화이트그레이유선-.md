@@ -1,11 +1,10 @@
 ---
-title: "aulaf87pro  [30~60대]  [성의샵] AULA F87PRO/F87/F99 기계식 게이밍 키보드/객제화 축좌 gasket구조 RGB램프 전키핫스왑 AU 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: 'aulaf87pro  [30~60대]  [성의샵] AULA F87PRO/F87/F99 기계식 게이밍 키보드/객제화 축좌 gasket구조 RGB램프 전키핫스왑 AU 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-03
-slug: "aulaf87pro--성의샵-AULA-F87PROF87F99-기계식-게이밍-키보드객제화-축좌-gasket구조-RGB램프-전키핫스왑-AULA-V4그레이축-F87버전화이트그레이유선-"
-author: Moon
+slug: 'aulaf87pro--성의샵-AULA-F87PROF87F99-기계식-게이밍-키보드객제화-축좌-gasket구조-RGB램프-전키핫스왑-AULA-V4그레이축-F87버전화이트그레이유선-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 **'aulaf87pro' 블루투스 헤드셋: 탁월한 소리와 편안함**
 

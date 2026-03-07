@@ -1,11 +1,10 @@
 ---
-title: "500% 작업 효율 상승! COZY 줄자홀더로 잃어버릴 걱정 끝!"
-description: "작업 현장의 필수템, COZY 줄자 홀더로 효율성을 높여보세요"
+title: '500% 작업 효율 상승! COZY 줄자홀더로 잃어버릴 걱정 끝!'
+description: '작업 현장의 필수템, COZY 줄자 홀더로 효율성을 높여보세요'
 date: 2026-02-25T05:41:00+09:00
-author: Moon
+author: 'Moon'
 categories: [shopping]
 tags: ["Top5", "shopping", "코지줄자홀더", "줄자홀더", "벨트홀더", "COZY", "작업효율", "공구수납", "휴대성"]
----
 
 > 💦 이 포스팅은 파트너스 활동을 통해 일정액의 수수료를 제공받습니다. 💦
 
