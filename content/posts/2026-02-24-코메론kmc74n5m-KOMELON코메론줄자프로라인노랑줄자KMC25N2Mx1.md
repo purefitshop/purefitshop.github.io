@@ -3,8 +3,9 @@ title: '🚀2024년 전문가픽! 코메론 줄자 KMC-25N, 5가지 장점으로
 description: '안녕하세요, 작업의 정밀도를 한 차원 높여줄 완벽한 파트너를 찾고 계신가요'
 date: 2026-02-25T06:46:00+09:00
 author: 'Moon'
-categories: [shopping]
-tags: ["Top5", "shopping", "코메론kmc74n5m", "코메론", "줄자", "KMC-25N", "프로라인", "측정", "공구", "DIY"]
+categories: ['shopping']
+tags: ['Top5', 'shopping', '코메론kmc74n5m', '코메론', '줄자', 'KMC-25N', '프로라인', '측정', '공구', 'DIY']
+---
 
 > 💦 이 포스팅은 파트너스 활동을 통해 일정액의 수수료를 제공받습니다. 💦
 
